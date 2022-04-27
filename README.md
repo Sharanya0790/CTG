@@ -1,0 +1,2 @@
+# CTG
+CTG- QVQ
